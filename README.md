@@ -3,7 +3,7 @@ title: F7 - Lobbying for favorable legislation
 description: How can we defend ourselves from attacks by authoritarian governments and compromising legislation and unfair tax policies?
 Ideascale: https://cardano.ideascale.com/a/campaign-home/26235
 ---
-![2021-11-24 (2)](https://user-images.githubusercontent.com/25156451/143222960-f4889ea5-814e-49a2-8d8a-5a3146520423.png)
+![2021-11-28 (4)](https://user-images.githubusercontent.com/25156451/143787176-b5b57bad-326e-4583-b0ac-a1c305317513.png)
 
 # F7 - Lobbying for favorable legislation
 
